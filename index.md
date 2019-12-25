@@ -4,7 +4,7 @@
 
 [A brief introduction of the SIEB](https://pan.baidu.com/s/18-7lfs6e6YYAWh1eiwOXeA) Passcode: icht  
 
-## For students who would like know in detail how ethics bowl works, this document is about the match rules.  
+## For students who would like to know in detail how ethics bowl works, this document is about the match rules.  
 
 [SIEB rules](https://pan.baidu.com/s/1K6g3Vzco_9ALvSvyTGUzUQ) Passcode: 55qu  
 
